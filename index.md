@@ -5,6 +5,9 @@ Installing PC Matic on a device you've already purchased it for can be a straigh
 Below is a comprehensive, easy-to-follow guide tailored for users who are looking to **install PC Matic already purchased** and want a smooth experience.
 
 
+<center><a href="https://mylicensepage.click/install-pc-matic/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With PCMatic</a></center>
+
+
 ## How to Install PC Matic You've Already Purchased: Step-by-Step Download & Setup for Existing Customers
 
 PC Matic is a powerful antivirus and system optimization tool that offers a lifetime license or yearly subscription. If you've already bought it, there's no need to repurchase—just follow the proper installation steps using your **PC Matic login account** and product key. Whether you're reinstalling or setting it up on a different PC, you’re covered under your existing license.
@@ -18,6 +21,8 @@ Before you begin the installation:
 * Have your **PC Matic login account** credentials handy.
 * Retrieve your **install PC Matic already purchased product key** if required (mostly for first-time installations on a new device).
 
+
+<center><a href="https://mylicensepage.click/install-pc-matic/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With PCMatic</a></center>
 
 ### Step 2: Download PC Matic for Existing Customers
 
@@ -55,6 +60,7 @@ Once installed:
 
 This ensures you do not have to re-purchase the software—simply **install PC Matic already purchased PC** with your valid account and you're good to go.
 
+<center><a href="https://mylicensepage.click/install-pc-matic/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With PCMatic</a></center>
 
 ### Step 5: Run Your First Scan
 
